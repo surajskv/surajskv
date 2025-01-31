@@ -1,6 +1,9 @@
 # 💫 Suraj Vishwakarma:
-suraj849627@gmail.com<br>😇 Simple Boy 🖤<br>💪 Fitness Lover💪<br>📸Photography📸<br>🎵Music Lover🎶<br>🙏Mahakal Ka Bhakt🙏<br>👑Wish me on 10 August🎂
-
+suraj849627@gmail.com 💡 Innovation Expert 🚀
+🌌 Cyber Security Specialist 🔒
+🔧 IT Architect 📐
+📊 Data Scientist 📊
+🛠️ System Technician 🔧
 
 ## 🌐 Socials:
 [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/Suraj Kumar S K V) ]([![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/suryavishwakarma668)) 
